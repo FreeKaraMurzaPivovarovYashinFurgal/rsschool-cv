@@ -1,3 +1,5 @@
+![photo](20230912_143254.jpg)
+
 # **Viktoriia Cheshkova**
 ***
 ### contacts: +995591883823, vickyevich@gmail.com, github-freekaramurzapivovarov
